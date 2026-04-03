@@ -1,3 +1,7 @@
 Music Used in Files:
 
-- Pony Island Main Theme
+- Enter Pony - Jonah Senzel
+
+- You Are Dead - Joe Sparks
+
+- The Potato Song - JohnPorterMcMeans, Cheryl Wheeler
